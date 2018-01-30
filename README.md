@@ -1,2 +1,0 @@
-# syria-bilarbi.com
-sy
